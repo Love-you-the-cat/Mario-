@@ -21,3 +21,10 @@ SECI ET LES COMPTE COMME  Mullvad, Telegram,  Epic Games, Riot Games, Minecraft,
 
 
 APRES NOUS AVONS LE WALLET 
+
+
+https://discord.gg/Y6mgXFZ7
+
+
+LE SERVEUR DISCORD 
+POUR AVOIR DE l'AIDE
